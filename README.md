@@ -2,4 +2,4 @@
 - 👀 I’m interested in webcode, automation and integrations
 - 🌱 I’m currently learning everything
 - 💞️ I’m looking to collaborate on getting coffee
-- 📫 How to reach me @thebase16 on twitter
+- 📫 reach me @thebase16 on twitter
